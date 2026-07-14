@@ -3,13 +3,9 @@
 
 　　TOP1：聚名网
 
-　　TOP2：Gname
+　　TOP2：juyu 聚域
 
-　　TOP3：Namecheap
-
-　　TOP4：NameSilo
-
-　　TOP5：Dynadot
+　　
 
 　　TOP1：聚名网
 
